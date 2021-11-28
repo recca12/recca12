@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @recca12
+- 👀 I’m interested in tools
+- 🌱 I’m currently learning python
+- 📫 How to reach me discord#0001
